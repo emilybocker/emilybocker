@@ -1,6 +1,6 @@
 ## emily 1B
 ## tudo por Jesus, nada sem Maria
 
-**emilybocker/emilybocker**  é ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**emilybocker/emilybocker**  é ✨ _special_ ✨ because its `README.md` (this file) appears on your GitHub profile.
 
 13 mil? só?
