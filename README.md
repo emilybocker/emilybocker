@@ -1,6 +1,7 @@
 ## emily 1B
 ## tudo por Jesus, nada sem Maria
 
-**emilybocker/emilybocker**  é ✨ _special_ ✨ because its `README.md` (this file) appears on your GitHub profile.
-
+**emilybocker/emilybocker** 
 13 mil? só?
+
+![Clapping-hamood](https://media1.tenor.com/m/eNI3RlC6DbcAAAAC/hamoud-wake-up.gif)
